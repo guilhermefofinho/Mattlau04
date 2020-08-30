@@ -18,4 +18,4 @@ bro i found hacker features
 ![Hacker](https://i.imgur.com/MSxpv8d.png)
 ![cat](https://github.githubassets.com/images/mona-whisper.gif)
 -->
-Literally gaming rn
+I wish i could dev :pensive:
